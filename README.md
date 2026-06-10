@@ -1,0 +1,1 @@
+# Alura-projeto-de-vida-Lucas-F-Salim-2026-pt1
